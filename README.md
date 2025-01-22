@@ -1,3 +1,5 @@
+https://rutube.ru/video/private/df6fe4e03c525105761129c24a42fb4a/?p=Li-xc04TaEZ6kdhJ1WerBg
+
 ### **Шпаргалка по написанию качественного кода**
 
 Вопросы по ПХП:
